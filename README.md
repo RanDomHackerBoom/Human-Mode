@@ -8,4 +8,5 @@ This is the innovative gameplay of Human Fall Flat
 这是人类一败涂地的创新玩法
 
 ------------来自人类一败涂地Mod研究所
-Discrod https://discord.gg/ym6Hsnw6D9
+
+Discrod——URL：https://discord.gg/ym6Hsnw6D9
